@@ -1,0 +1,2 @@
+A general resume of Oluwatobi Adeshina, Software Developer, IT Manager, Computer Engineer. This resume is created as part of a preparatory task for HNG internship program.
+Thanks @flutterwave @startdotng https://twitter.com/drtobbyas/status/1167687068480344064.
